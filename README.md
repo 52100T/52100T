@@ -1,4 +1,4 @@
-![吾爱100T](https://github.com/52100T/52100T/blob/main/lXkSvoaLQfl5.png?raw=true)
+![吾爱100T](https://github.com/52100T/52100T/blob/main/lXkSvoaLQfl5.webp?raw=true)
 
 # 吾爱100T 机场
 
